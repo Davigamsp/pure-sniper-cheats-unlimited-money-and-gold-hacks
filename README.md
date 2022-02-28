@@ -1,2 +1,5 @@
-# pure-sniper-cheats-unlimited-money-and-gold-hacks
-Pure Sniper cheats unlimited money and gold Hacks tutorial
+# Pure Sniper cheats unlimited money and gold Hacks tutorial
+
+Pure Sniper cheats unlimited money and gold Hacks tutorial - When you participate in a task, you will consume at least one energy regardless of the type of task. The energy system used by pure snipers is widely used in mobile games. Your energy will be naturally replenished one by one. Once you have an empty energy tank, you will start regenerating one energy unit every 15 minutes. The first way is to watch advertisements. If there is an advertisement to watch, a short advertisement will be displayed; Otherwise, the game will declare that there are no advertisements to display at present. Watching advertisements will give you two energy units. We encourage you to make the most of this option, as it may bring unlimited energy. Ads rarely run out. If they run out, just close and reload the game and the ad queue will resume. The second way is to buy energy. To make it work, you must have at least 100 gold coins. Although the price of this option is high, it will fill all the energy tanks so that you can jump back as you like. 
+
+<a href="https://windmod.icu/pure-sniper/">Go now</a>
